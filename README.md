@@ -27,3 +27,5 @@
 **Mac端：更换浏览器（推荐使用Chrome浏览器）**
 
 或者safari设置中关闭访问欺骗性网站时发出警告功能。
+
+**交易所推荐**：[欧易OKX](https://leixue.com/go/okx)、[币安Binance](https://leixue.com/go/binance)、[火币HTX](https://leixue.com/go/htx)
