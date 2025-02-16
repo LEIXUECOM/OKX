@@ -2,7 +2,7 @@
 
 2025欧易OKX国内免翻墙官网备用链接入口地址（ https://href.host/okx ），由[超链导航](https://href.host)提供维护，通过收集由OKX欧易官方提供的备用入口地址列表，利用本地网络判断，通过访问 [href.host/okx](https://href.host/okx) 会自动跳转到当前网络可以访问的欧易官方备用入口地址。
 
-**欧易OKX官方域名导航**：[https://href.host/okx](https://href.host/okx)
+**欧易OKX官方域名导航**：[https://leixue.com/go/okx](https://leixue.com/go/okx)
 
 **欧易OKX官方APP下载**：[https://leixue.com/go/okxapp](https://leixue.com/go/okxapp)
 
